@@ -1,0 +1,2 @@
+# mozmassokomusic
+A Moz Massoko Music é um site vocacionado na divulgação de Músicas que marcam a atualidade africana e do Mundo.  Aqui você vai poder se desfrutar de uma vasta gama de melodias que tem tomado conta das Rádios, televisões, entre outro tipos de meios de comunicação social.  A Moz Massoko Muic também vai te dar a oportunidade de recuar no tempo, e se desfrutrar das músicas que marcaram o seu passado.
